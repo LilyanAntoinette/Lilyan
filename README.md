@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MiniL15
+- 👋 Hi, I’m Lilyan
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning to code
 - 📫 How to reach me using Discord-MiniL15#9410
